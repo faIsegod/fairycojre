@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @fairycojre
-- 👀 I’m interested in drawing ; music ; 'etc !
+- 👀 I’m interested in drawing . music . 'etc
 - 🌱 I’m currently learning [ ? ]
 - 💞️ I’m looking to collaborate on [ ? ]
 - 📫 How to reach me [ ? ]
